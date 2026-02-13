@@ -1,5 +1,0 @@
-Ahmed Galal Abdelhai-Team leader
-Basel Mahmoud Abdelkader  
-Nouran Walied Elsayed  
-Hamza Wael Mohamed
-Jena Rizk
